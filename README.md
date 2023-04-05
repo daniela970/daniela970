@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @daniela
 - 👀 I’m interested in assistir anime, ouvir musicas 
 - 🌱 I’m currently learning sla
-- 💞️ I’m looking to collaborate on meu namoro
+- 💞️ I’m looking to collaborate on nada
 - 📫 How to reach sla 
 
 <!---
